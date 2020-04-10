@@ -1,7 +1,7 @@
 Hux Blog
 ========
 
-### [View alive Hux Blog &rarr;](https://huangxuan.me)  
+### [View alive Hux Blog &rarr;](https://wozuishuai121.top/)  
 
 ![](http://huangxuan.me/img/blog-desktop.jpg)
 
